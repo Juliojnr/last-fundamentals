@@ -1,0 +1,2 @@
+# last-fundamentals
+Ultimo suspiro
